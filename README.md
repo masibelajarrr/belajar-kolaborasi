@@ -3,4 +3,6 @@
 Perubahan Commit ke-1  
 Perubahan Commit ke-2  
 Perubahan Commit ke-3  
-DPR a****g
+DPR a****g  
+  
+Kita punya pemerintah beban
